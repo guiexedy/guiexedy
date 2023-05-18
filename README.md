@@ -1,3 +1,3 @@
-exedy librty frift
+exedy librty drift
 cpm
 99
